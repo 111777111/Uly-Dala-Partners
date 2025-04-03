@@ -1,1 +1,1 @@
-# Uly-Dala-Partners
+# Alatau-Partners
